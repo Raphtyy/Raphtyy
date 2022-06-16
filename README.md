@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Raphtyy
 - 👀 I’m interested in ur mom
-- 🌱 I’m currently learning sql framework
+- 🌱 I’m currently learning ur mom
 - 💞️ I’m looking to collaborate on fortnite battlepass
 - 📫 How to reach me unreachable
 
